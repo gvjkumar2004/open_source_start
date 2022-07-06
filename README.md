@@ -24,11 +24,19 @@ Its ~~october~~(hackctober month) ...add your codes and contribute to open sourc
 - friends
 - game of thrones 
 - breaking bad
+- Bates motel
+- The Vampire Diaries
+- The Boys
 ### -⚡ Anime walo sey kaise bach sakte hai(dal do apne fav anime )
 ---
 - DeathNote
 - Naruto
 - one punch man
+- Jujutsu kaisen
+- HunterXHunter
+- one piece
+- Blacklover
+- Dr. Strange
 
 
 <br/>
